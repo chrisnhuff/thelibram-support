@@ -35,4 +35,4 @@ Please be respectful and constructive in all interactions. Issues that are abusi
 
 ## Links
 
-- **Privacy Policy:** [almostright.com/privacy](https://almostright.com/privacy)
+- **Privacy Policy:** [almostrightcreative.com/privacy](https://almostrightcreative.com/privacy)
